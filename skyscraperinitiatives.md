@@ -1,6 +1,6 @@
 ###### tags: `blog` `website`
 
-# Skyscraper Leadership Initiatives
+# Skyscraper Leadership Initiative
 ![](https://i.imgur.com/YQb1MEZ.jpg)
 
-As part of our plans to contribute to a better educational system, ALN will partner with resource personels to embark on the skyscraper leadership initiative which will seek to organize seminars, conferences, training and skill acquisition and mentorship programs, counselling and sex educational programs and many more through online platforms and at the village information centres.
+As part of our plans to contribute to a better educational system, ALN partners with resource personnel to embark on the skyscraper leadership initiative which will seek to organize seminars, conferences, training, skill acquisition, mentorship, counselling and sex educational programs. This and many more will be achieved through online platforms, various school campuses and at village information centres.
